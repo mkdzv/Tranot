@@ -1,0 +1,2 @@
+# Tranot
+Traders would understand
